@@ -42,7 +42,7 @@ Feel free to reach out to me if you have any questions or if you'd like to colla
 
 - [Email](mailto:guille86598@gmail.com)
 - [Linkedin](https://www.linkedin.com/in/guillermo-tala)
-- [Twitter](https://twitter.com/GuillermoTala)
+- [Twitter](https://twitter.com/GuilleTala)
 
 Let's build the future of decentralized applications together! 💪 🚀 ✨
 
